@@ -1,1 +1,1 @@
-<img src="apk-Auto-Clicker-(1).png">
+<img src="Apk-Auto-Clicker-(1).png">
